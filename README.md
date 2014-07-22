@@ -1,3 +1,5 @@
+![Colombia's Diversity Problem: A Speech on Tourism](colombias-diversity-problem-cover.jpg)
+
 colombia's diversity problem
 ============================
 
